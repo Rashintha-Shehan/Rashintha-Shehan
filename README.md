@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Rashintha-Shehan
+- 🌱I’m currently undergraduate BICT(Hons)
+- 📝 I  write articles on https://medium.com/@rashinthas427
+- 📫 How to reach me Rashinthas427@gmail.com
