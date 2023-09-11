@@ -9,6 +9,8 @@
 
 ![image](https://github.com/Rashintha-Shehan/Rashintha-Shehan/assets/143130147/d0ef5611-a258-42ce-b4ff-ec5bfa2f9bef)
 
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Rashintha-Shehan)](https://github.com/anuraghazra/github-readme-stats)
+
 
 
 
