@@ -1,4 +1,4 @@
-![image](https://github.com/Rashintha-Shehan/Rashintha-Shehan/assets/143130147/643ded65-bf92-4daa-a776-6850837ddd72)
+![MasterHead](https://github.com/Yasasisuru/yasasisuru/blob/main/ddjk36s-36e736ed-a3f5-4ead-bc5a-2055ad79d8a7.gif?raw=true)
 ![image](https://github.com/Rashintha-Shehan/Rashintha-Shehan/assets/143130147/5e933ded-a955-4ca9-a540-435ba2f29a8e)
 - 🌱I’m currently undergraduate BICT(Hons)
 - 📝 I  write articles on https://medium.com/@rashinthas427
