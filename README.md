@@ -7,7 +7,8 @@
 
 ![image](https://github.com/Rashintha-Shehan/Rashintha-Shehan/assets/143130147/731796d4-8b84-4aa9-9e4f-3fdab063f71e)
 
-![image](https://github.com/Rashintha-Shehan/Rashintha-Shehan/assets/143130147/d0ef5611-a258-42ce-b4ff-ec5bfa2f9bef)
+![image](https://github.com/Rashintha-Shehan/Rashintha-Shehan/assets/143130147/d0ef5611-a258-42ce-b4ff-ec5bfa2f9bef)![image](https://github.com/Rashintha-Shehan/Rashintha-Shehan/assets/143130147/7d301e7a-dd6b-4b46-86ae-993c7369b698)
+
 
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Rashintha-Shehan)](https://github.com/anuraghazra/github-readme-stats)
 
